@@ -1,5 +1,3 @@
-# Help us REOPEN Evansville
-
 As the state of Indiana and entire nation has essentially been shut down since mid-March due to the COVID-19 pandemic, the impacts on the economy and our neighbors has been devastating. 
 
 In response, Evansville Mayor Lloyd Winnecke created the “Re-Open Evansville” Task Force and appointed Deputy Mayor Steve Schaefer to lead a comprehensive community effort to address challenges impacting our city and developing a path forward. 
